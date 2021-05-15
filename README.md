@@ -1,0 +1,1 @@
+Chole bhature is a food dish originating from northern India. it is a combination of chana masala and bhatura/Puri, a fried bread made from maida. Although it is known as a typical Punjabi dish, there are varied claims around the origin of dish.
